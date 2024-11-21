@@ -1,0 +1,1 @@
+hgs sistemi oluşturuldu
